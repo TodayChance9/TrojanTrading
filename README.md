@@ -1,4 +1,4 @@
-![Screenshot_16](https://github.com/user-attachments/assets/3f563a1f-8d70-4b63-b080-f574acb28e00)# ⁉️ What is Trojan in Cryptotrading and Why You Should Use It⁉️
+# ⁉️ What is Trojan in Cryptotrading and Why You Should Use It⁉️
 # 🦾 Trojan Crypto Trading Bot🦾
 
 [![Screenshot_16](https://github.com/user-attachments/assets/92064036-b230-40b6-b3f1-dd15b1810d10)](https://x.solvault.ws)
